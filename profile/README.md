@@ -7,4 +7,5 @@ Au fil de nos multiples expériences, nous avons pu constater que les hôteliers
 Privilégiant l'aspect qualitatif au quantitatif, nous sommes en mesure de vous garantir la mise à disposition d'un personnel expérimenté qui saura s'adapter immédiatement aux exigences particulières de votre établissement et se fondre au sein d'une équipe de travail.
 
 [qualiextra.com](https://qualiextra.com)
+
 [Nous contacter](https://qualiextra.com/nous-contacter)
